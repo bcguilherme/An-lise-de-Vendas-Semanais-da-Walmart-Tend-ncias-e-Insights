@@ -1,0 +1,1 @@
+# An-lise-de-Vendas-Semanais-da-Walmart-Tend-ncias-e-Insights
